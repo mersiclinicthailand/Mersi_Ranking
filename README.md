@@ -1,1 +1,0 @@
-# Mersi_Ranking
